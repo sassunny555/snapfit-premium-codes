@@ -7,8 +7,6 @@ Thanks for checking out SnapFit!
 1. Visit:
 https://www.snapfit-app.online/promo/
 
-2. Enter your name.
-
 3. Receive your monthly Premium promo code instantly.
 
 Enjoy SnapFit! 🥗
